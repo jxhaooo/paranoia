@@ -1,0 +1,2 @@
+# paranoia
+[,pærə'nɒɪə]
